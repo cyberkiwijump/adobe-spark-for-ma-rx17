@@ -1,4 +1,4 @@
-# 
+# secure Adobe Spark for macOS Module | batch-processing + text-animation offers the most advanced Adobe Spark for macOS module, with batch-processing and text-animation. Ideal for
 
 
 
